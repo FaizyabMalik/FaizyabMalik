@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @FaizyabMalik
 - 👀 I’m interested in IT
-- 🌱 I’m currently Studying Business Information Technology and SYstems...
+- 🌱 I’m currently Studying Business Information Technology and Systems
 - 💞️ I’m looking to collaborate on various Projects to further enhance my Skills
 - 📫 How to reach me ...
 
